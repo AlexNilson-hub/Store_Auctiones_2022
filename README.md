@@ -1,0 +1,1 @@
+# Store_Auctiones_2022
